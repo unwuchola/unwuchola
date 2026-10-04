@@ -41,7 +41,7 @@ I'm learning to:
 
 ---
 
-*"Every expert was once a beginner. Every investigation starts with one event."*
+
 ---
 
 *"Every expert was once a beginner. Every investigation starts with one event."*
